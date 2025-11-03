@@ -7,7 +7,7 @@ Computer Science student @ IST 🚀
 💻 Lowkey obsessed with clean UI & aesthetic projects.<br/>
 ⚡ Love jumping into hackathons for the chaos + creativity.<br/>
 let’s collab or just vibe over code & design 💡<br/>
-📎 Portfolio: https://www.notion.so/Portfolio-1e4a331ea3a58001a40edc8885baeb59?pvs=4 <br/>
+
 📎 LinkedIn: www.linkedin.com/in/amna-maryam-9791a6333
 
 
